@@ -1,5 +1,5 @@
 ## Howdy! 😺👋
-Hello! My name is Kike, pronounced as key-kEH (like the kEH sound in kettle). 
+My name is Kike, pronounced as key-kEH (like the kEH sound in kettle). 
 
 
 
