@@ -1,5 +1,5 @@
 ## Howdy! 😺👋
-My name is Kike, pronounced as key-kEH (like the kEH sound in kettle). 
+My name is Kike, pronounced as key-kEH (like the kEH sound in kettle). I use They/She pronouns.
 
 
 
